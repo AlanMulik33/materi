@@ -3,3 +3,7 @@ https://www.canva.com/design/DAGoK_Po1Pg/SIX7c3C5jqtnwtFYJV79gw/edit?utm_content
 
 # Materi Manajemen Bisnis Pendelegasian Wewenang
 https://www.canva.com/design/DAGpbqWBhAw/OoRMDbps8_ghRclPqiRx6A/edit?utm_content=DAGpbqWBhAw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+
+# Materi Akutansi Posting Buku Besar
+https://www.canva.com/design/DAG3REkaaUA/ePic5GY9c-HAMMkkagPySg/edit?utm_content=DAG3REkaaUA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton

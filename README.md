@@ -1,5 +1,5 @@
 # Materi Digital Heritage
-https://canva.link/bk3ow17lc5tevyu
+https://canva.link/2s4o1lccxu48lm0
 
 # materi e-Business SCM
 https://www.canva.com/design/DAGoK_Po1Pg/SIX7c3C5jqtnwtFYJV79gw/edit?utm_content=DAGoK_Po1Pg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
